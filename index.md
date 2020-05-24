@@ -1,3 +1,6 @@
 # Welcome to my blog
 
-I'm glad you are here. I plan to talk about ...
+My name
+A picture of me
+My social media information
+My brag sheet
